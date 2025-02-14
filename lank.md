@@ -1,0 +1,3 @@
+<html>
+<meta http-equiv="refresh" content="0;url=https://cookiepl.notion.site/CookiePl-EMC-b3a758e962ee40c982dcad34f7388546?pvs=25">
+</html>
